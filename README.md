@@ -1,1 +1,1 @@
-# digitalocean-coupon.github.io
+# newcoupons.info
